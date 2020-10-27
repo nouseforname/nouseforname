@@ -8,7 +8,7 @@
 
 - 🌱 I’m always learning something new 🤣
 - 👯 I’m looking to collaborate with other content creators
-- ⚡ Fun fact: I love to cycling and skiing
+- ⚡ Fun fact: I love cycling and skiing
 
 
 ### Connect with me:
